@@ -1,2 +1,4 @@
 # hello-world
-My very first thing I do on GitHub
+I'm Ann. I'm 16y.o. Hey✌)
+I'm opened for criticism because I'm here to learn.
+🤞✨💕👌
